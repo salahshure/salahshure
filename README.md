@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @salahshure
+- 👋 Hi, I’m @salahshor
 - 👀 I’m interested in Crypto!
 - 🌱 I’m currently learning Ethereum Defis.
 - 💞️ I’m looking to collaborate on different projects.
